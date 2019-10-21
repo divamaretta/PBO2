@@ -9,3 +9,20 @@
 ![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(371).png)
 
 # Siswa
+![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(373).png)
+![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(375).png)
+
+# Bus3 
+![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(376).png)
+![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(377).png)
+
+
+# PRAKTIKUM 
+
+# BUS 
+![Alt Text](
+![Alt Text](
+
+# Bola 
+![Alt Text](
+![Alt Text](
