@@ -20,8 +20,8 @@
 # PRAKTIKUM 
 
 # BUS 
-![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(378).png)
-![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(379).png)
+![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(380).png)
+![Alt Text](https://github.com/divamaretta/PBO2/blob/master/Screenshot%20(381).png)
 
 # Bola 
 ![Alt Text](
